@@ -1,2 +1,2 @@
 # Cokolwiek
-tu też cokolwiek
+Jan Paweł 
